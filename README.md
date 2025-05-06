@@ -6,4 +6,4 @@
 
 　　　 　 --  ๋࣭ ⭑ どーってこたないって ! 傷付いちゃない ,, どーってこたないって ! 泣いてなんかない [uh!) ,,
 
-　 　 　 　 　　　　 　　  ;; # DNC Any Of My Skins,, Ask To Take Inspo !! . .
+　 　 　 　 　　　　　　 　　  ;; # DNC Any Of My Skins,, Ask To Take Inspo !! . .
