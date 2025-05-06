@@ -2,6 +2,7 @@
 
 
 ✩ ;; # Friendz (°ロ°) !! >> @greenbeanx3 ,, @WhosSilvey ,, @s0urgrapes ,, @foundermcu ,, @mandalovity ,, @Muggy07 ,, @Exlipee ,,
+　  　 　  　  　  　 　  　 　  　 ˖ . ݁𝜗 @ 𝜚. ݁₊
 
     
 
