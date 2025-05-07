@@ -6,5 +6,5 @@
 
 <p align="center">--  ๋࣭ ⭑ どーってこたないって ! 傷付いちゃない ,, どーってこたないって ! 泣いてなんかない [uh!) ,,</p>
 
-<p align="center">;; # DNC Any Of My Skins,, Ask To Take Inspo !! . .</p>
+<p align="center">;; # DNC Any Of My Skins & Ask To Take Inspo !! . .</p>
 
