@@ -1,5 +1,5 @@
 <p align="center">
-  <a href="https://dea4dpool.straw.page">۶ Strawpage</a>  ✶  <a href="https://deepinkman.atabook.org">Atabook</a>  ✶  <a href="https://pronouns.cc/@deepinkman">Pronouns ৎ</a>
+  <a href="https://dea4dpool.straw.page">۶ 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞</a>  ✶  <a href="https://deepinkman.atabook.org">𝐀𝐭𝐚𝐛𝐨𝐨𝐤</a>  ✶  <a href="https://pronouns.cc/@deepinkman">𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬 ৎ</a>
 
 <p align="center">
   <img src="https://pa1.aminoapps.com/5830/e89c6954342d6dbb7f90032fe0d24801d731eae5_hq.gif" alt=""Lets Dance"" width="400" />
