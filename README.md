@@ -8,4 +8,4 @@
 <p align="center">
   ════════════════════════════════════════
 </p>
-![](https://komarev.com/ghpvc/?username=deepinkman&style=plastic)
+FUKCCCKKCCK
