@@ -8,4 +8,6 @@
 <p align="center">
   ════════════════════════════════════════
 </p>
-FUKCCCKKCCK
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=530d0d&style=plastic&label=stalkers&abreviated=true">
+</p>
