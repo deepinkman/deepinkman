@@ -8,4 +8,4 @@
 <p align="center">
   ════════════════════════════════════════
 </p>
-![stalkers](https://komarev.com/ghpvc/?username=deepinkman&style=plastic)
+![](https://komarev.com/ghpvc/?username=deepinkman&style=plastic)
