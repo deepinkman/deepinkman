@@ -2,7 +2,7 @@
   <a href="https://deepinkman.straw.page">۶ 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞</a>  ✶  <a href="https://deepinkman.atabook.org">𝐀𝐭𝐚𝐛𝐨𝐨𝐤</a>  ✶  <a href="https://pronouns.cc/@deepinkman">𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬 ৎ</a>
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1189217849839992973/1384849788687876197/Untitled1010_20250618135800.png?ex=6853ed5e&is=68529bde&hm=03927b0d8f52aa118f1783586fe80a2873d0459f9727056240387510f9cee281&" title="Poolverine Furry Yaoi/J" width="500" />
+  <img src="https://pa1.aminoapps.com/5830/e89c6954342d6dbb7f90032fe0d24801d731eae5_hq.gif" width="400" />
 </p>
 
 <p align="center">
