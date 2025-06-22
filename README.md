@@ -5,11 +5,12 @@
   <img src="https://pa1.aminoapps.com/5830/e89c6954342d6dbb7f90032fe0d24801d731eae5_hq.gif" width="400" />
 </p>
 
-<p align="center">
-  もどーってこたないって 傷付いちゃない - どーってこたないって 泣いてなんかない
-</p>
+
 <p align="center">
   ════════════════════════════════════════
+</p>
+<p align="center">
+  もどーってこたないって 傷付いちゃない - どーってこたないって 泣いてなんかない
 </p>
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=530d0d&style=plastic&label=stalkers&abreviated=true">
