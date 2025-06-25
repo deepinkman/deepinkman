@@ -2,7 +2,7 @@
   <a href="https://deepinkman.straw.page">۶ 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞</a>  ✶  <a href="https://deepinkman.atabook.org">𝐀𝐭𝐚𝐛𝐨𝐨𝐤</a>  ✶  <a href="https://pronouns.cc/@deepinkman">𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬 ৎ</a>
 
 <p align="center">
-  <img src="https://s2.ezgif.com/tmp/ezgif-22487bcfc813cd.gif" width="400" />
+  <img src="https://files.catbox.moe/j9svij.gif" width="400" />
 </p>
 
 <p align="center">
