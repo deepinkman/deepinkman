@@ -10,9 +10,5 @@
 </p>
 
 <p align="center">
-  もどーってこたないって 傷付いちゃない - どーってこたないって 泣いてなんかない
-</p>
-
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=530d0d&style=plastic&label=stalkers&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=e81224&style=plastic&label=🩸&abreviated=true">
 </p>
