@@ -10,5 +10,11 @@
 </p>
 
 <p align="center">
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31exv563svc6lrelnypldxlrrewq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
+
+</p>
+
+<p align="center">
   <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=e81224&style=plastic&label=🩸&abreviated=true">
 </p>
