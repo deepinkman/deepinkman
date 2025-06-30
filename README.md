@@ -10,7 +10,7 @@
 
 <img align="left" width="45%" src="https://files.catbox.moe/byz8cq.jpeg">
 
-### BYI ![](https://files.catbox.moe/ifaxp3.gif)
+### ​🇧​​🇾​​🇮​ ![](https://files.catbox.moe/ifaxp3.gif)
 
 
 
@@ -21,7 +21,7 @@
   🌙 Outside | ⛔ Online | 💬 More chatty
 </small>
 
-### LINKS ![](https://files.catbox.moe/cesrhl.webp)
+### ​🇱​​🇮​​🇳​​🇰​​🇸​ ![](https://files.catbox.moe/cesrhl.webp)
 
 <a href="https://deepinkman.straw.page" target="_blank">**​🇸​​🇹​​🇷​​🇦​​🇼​​🇵​​🇦​​🇬​​🇪​**</a>　　<a href="https://deepinkman.atabook.org" target="_blank">**​🇦​​🇹​​🇦​​🇧​​🇴​​🇴​​🇰​**</a>　　<a href="https://pronouns.cc/@deepinkman" target="_blank">**​🇵​​🇷​​🇴​​🇳​​🇴​​🇺​​🇳​​🇸​**</a>
 
