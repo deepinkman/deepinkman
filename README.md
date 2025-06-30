@@ -16,20 +16,20 @@
 
 
 <small>
-  Always Cuddle - Boop - Whisper - Interact etc. Freely
+  𝙰𝚕𝚠𝚊𝚢𝚜 𝙲𝚞𝚍𝚍𝚕𝚎 - 𝙱𝚘𝚘𝚙 - 𝚆𝚑𝚒𝚜𝚙𝚎𝚛 - 𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚎𝚝𝚌. 𝙵𝚛𝚎𝚎𝚕𝚢
 
   🌙 Outside | ⛔ Online | 💬 More chatty
 </small>
 
 ### LINKS ![](https://files.catbox.moe/cesrhl.webp)
 
-<a href="https://deepinkman.straw.page" target="_blank">**𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞**</a>　　<a href="https://deepinkman.atabook.org" target="_blank">**𝐀𝐭𝐚𝐛𝐨𝐨𝐤**</a>　　<a href="https://pronouns.cc/@deepinkman" target="_blank">**𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬**</a>
+<a href="https://deepinkman.straw.page" target="_blank">**​🇸​​🇹​​🇷​​🇦​​🇼​​🇵​​🇦​​🇬​​🇪​**</a>　　<a href="https://deepinkman.atabook.org" target="_blank">**​🇦​​🇹​​🇦​​🇧​​🇴​​🇴​​🇰​**</a>　　<a href="https://pronouns.cc/@deepinkman" target="_blank">**​🇵​​🇷​​🇴​​🇳​​🇴​​🇺​​🇳​​🇸​**</a>
 
 <small>
-  Please Ask 4 Permission B4 Taking Inspo Freaks
+  𝙿𝚕𝚎𝚊𝚜𝚎 𝙰𝚜𝚔 𝟺 𝙿𝚎𝚛𝚖𝚒𝚜𝚜𝚒𝚘𝚗 𝙱𝟺 𝚃𝚊𝚔𝚒𝚗𝚐 𝙸𝚗𝚜𝚙𝚘 𝙵𝚛𝚎𝚊𝚔𝚜
   
   I Swear I'm A Nice Guy
 </small>
 
 
-<img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=e81224&style=plastic&label=🩸&abreviated=true"> <img src="https://files.catbox.moe/ebf6ci.webp" width="25" />
+<img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=e81224&style=plastic&label=🩸&abreviated=true">　<img src="https://files.catbox.moe/ebf6ci.webp" width="25" />
