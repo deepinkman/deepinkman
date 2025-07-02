@@ -32,4 +32,4 @@
 </small>
 
 
-<img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=e81224&style=plastic&label=🩸&abreviated=true">　<img src="https://files.catbox.moe/ebf6ci.webp" width="25" />
+<img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=e81224&style=plastic&label=🩸&abreviated=true"> <img src="https://files.catbox.moe/fwt4s3.gif" width="25" />
