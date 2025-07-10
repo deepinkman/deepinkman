@@ -8,7 +8,7 @@
 ᅟ
 
 
-<img align="left" width="45%" src="https://files.catbox.moe/byz8cq.jpeg">
+<img align="left" width="45%" src="https://files.catbox.moe/ubdm1r.png">
 
 ### ​🇧​​🇾​​🇮​ ![](https://files.catbox.moe/ifaxp3.gif)
 
