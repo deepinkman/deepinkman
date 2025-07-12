@@ -23,7 +23,7 @@
 
 ### ​🇱​​🇮​​🇳​​🇰​​🇸​ ![](https://files.catbox.moe/cesrhl.webp)
 
-<a href="https://deepinkman.straw.page" target="_blank">**​🇸​​🇹​​🇷​​🇦​​🇼​​🇵​​🇦​​🇬​​🇪​**</a>　　<a href="https://deepinkman.atabook.org" target="_blank">**​🇦​​🇹​​🇦​​🇧​​🇴​​🇴​​🇰​**</a>　　<a href="https://pronouns.cc/@deepinkman" target="_blank">**​🇵​​🇷​​🇴​​🇳​​🇴​​🇺​​🇳​​🇸​**</a>
+<a href="https://deepinkman.straw.page" target="_blank">**​🇸​​🇹​​🇷​​🇦​​🇼​​🇵​​🇦​​🇬​​🇪​**</a>　　<a href="https://deepinkman.atabook.org" target="_blank">**​🇦​​🇹​​🇦​​🇧​​🇴​​🇴​​🇰​**</a>　　<a href="https://pronouns.cc/@deepinkman" target="_blank">**​🇵​​🇷​​🇴​​🇳​​🇴​​🇺​​🇳​​🇸​**</a>　　<a href="https://artfight.net/~deepinkman" target="_blank">**​​🇦​​🇷​​🇹​​🇫​​🇮​​🇬​​🇭​​🇹​**</a>
 
 <small>
   𝙿𝚕𝚎𝚊𝚜𝚎 𝙰𝚜𝚔 𝟺 𝙿𝚎𝚛𝚖𝚒𝚜𝚜𝚒𝚘𝚗 𝙱𝟺 𝚃𝚊𝚔𝚒𝚗𝚐 𝙸𝚗𝚜𝚙𝚘 𝙵𝚛𝚎𝚊𝚔𝚜
