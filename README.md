@@ -26,9 +26,11 @@
 
 <small>
   Please Ask 4 Permission B4 Taking Inspo Freaks
-  
-</small>
 
+
+  
+  I Swear I'm a Nice Guy
+  </small>
 
 
 
