@@ -22,7 +22,7 @@
 
 ### ​LINKS ![](https://files.catbox.moe/cesrhl.webp)
 
-<a href="https://deepinkman.straw.page" target="_blank">**​STRAWPAGE​**</a>　　<a href="https://deepinkman.atabook.org" target="_blank">**ATABOOK**</a>　　<a href="https://pronouns.cc/@deepinkman" target="_blank">**PRONOUNS**</a>　　<a href="https://artfight.net/~deepinkman" target="_blank">**ARTFIGHT​**</a>
+<a href="https://deepinkmann.straw.page" target="_blank">**​STRAWPAGE​**</a>　　<a href="https://deepinkman.atabook.org" target="_blank">**ATABOOK**</a>　　<a href="https://pronouns.cc/@deepinkman" target="_blank">**PRONOUNS**</a>　　<a href="https://artfight.net/~deepinkman" target="_blank">**ARTFIGHT​**</a>
 
 <small>
   Please Ask 4 Permission B4 Taking Inspo Freaks
