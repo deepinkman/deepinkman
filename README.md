@@ -3,7 +3,7 @@
 <img align="left" width="100%" src="https://files.catbox.moe/5ldoyr.png">
 
 ᅟ
-### BYI​ ![](https://files.catbox.moe/l3589q.gif)
+### ⁩ᶻ 𝗓 𐰁 BYI​ ![](https://files.catbox.moe/l3589q.gif)
 
 
 
