@@ -1,6 +1,6 @@
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Gothic+Expanded+One&duration=2000&pause=600&color=4585F7&center=true&vCenter=true&multiline=true&random=true&height=70&lines=WHAT+KIND+OF+GOD+WOULD;ALLOW+THIS+TO+HAPPEN%3F)](https://git.io/typing-svg)
+
 
 <img align="left" width="100%" src="https://files.catbox.moe/zmt2ur.webp">
 
