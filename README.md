@@ -1,6 +1,6 @@
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Gothic+Expanded+One&duration=3000&pause=1000&color=AD0000&center=true&width=440&height=40&lines=All+right%2C+Try+To+Relax.;Fear+%26+Stress+Isn't+Good+4+The+Meat.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Gothic+Expanded+One&duration=2000&pause=600&color=4585F7&center=true&vCenter=true&multiline=true&random=true&height=70&lines=WHAT+KIND+OF+GOD+WOULD;ALLOW+THIS+TO+HAPPEN%3F)](https://git.io/typing-svg)
 
 <img align="left" width="100%" src="https://files.catbox.moe/zmt2ur.webp">
 
