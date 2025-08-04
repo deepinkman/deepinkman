@@ -2,7 +2,9 @@
 
 <img align="left" width="100%" src="https://files.catbox.moe/5ldoyr.png">
 
-ᅟ
+<img align="left" width="30%" src="https://files.catbox.moe/iz3494.png">
+
+
 ### ⁩ᶻ 𝗓 𐰁 BYI​ ![](https://files.catbox.moe/l3589q.gif)
 
 
