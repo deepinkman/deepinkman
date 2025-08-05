@@ -5,6 +5,8 @@
 <img align="left" width="30%" src="https://files.catbox.moe/iz3494.png">
 
 
+<img align="left" width="30%" src="https://files.catbox.moe/n5ym6s.jpg">
+
 ### ⁩ᶻ 𝗓 𐰁 BYI​ ![](https://files.catbox.moe/l3589q.gif)
 
 
