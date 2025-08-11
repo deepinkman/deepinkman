@@ -3,8 +3,6 @@
 <img align="left" width="100%" src="https://files.catbox.moe/5ldoyr.png">
 
 
-<img align="left" width="30%" src="https://files.catbox.moe/n5ym6s.jpg">
-
 ### ⁩ᶻ 𝗓 𐰁 BYI​ ![](https://files.catbox.moe/l3589q.gif)
 
 
