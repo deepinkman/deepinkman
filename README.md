@@ -7,7 +7,7 @@
 ### ⁩ᶻ 𝗓 𐰁 BYI​ ![](https://files.catbox.moe/l3589q.gif)
 
 
-<img align="left" width="40%" src="https://files.catbox.moe/06gdpe.jpg">
+<img align="left" width="50%" src="https://files.catbox.moe/06gdpe.jpg">
 
 <small>
   Always Cuddle - Boop - Whisper - Interact etc. Freely
@@ -24,7 +24,7 @@
 
 
   
-  Please Interact W Me I Swear I'm a Cool Guy
+  ㅤㅤㅤㅤㅤㅤㅤㅤPlease Interact W Me I Swear I'm a Cool Guy
   </small>
 
 
