@@ -7,7 +7,7 @@
 ### ⁩ᶻ 𝗓 𐰁 BYI​ ![](https://files.catbox.moe/l3589q.gif)
 
 
-<img align="left" width="50%" src="https://files.catbox.moe/06gdpe.jpg">
+
 
 <small>
   Always Cuddle - Boop - Whisper - Interact etc. Freely
@@ -26,8 +26,6 @@
   
   ㅤPlease Interact W Me I Swear I'm a Cool Guy
   </small>
-
-
 
 
 <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=6d9ee3&style=plastic&label=💤&abreviated=true">
