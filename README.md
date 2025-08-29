@@ -24,7 +24,7 @@
 
 
   
-  ㅤPlease Interact W Me I Swear I'm a Cool Guy
+  Please Interact W Me I Swear I'm a Cool Guy
   </small>
 
 
