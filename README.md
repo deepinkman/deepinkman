@@ -10,7 +10,7 @@
 
 
 <small>
-  Always Cuddle - Boop - Whisper - Interact etc. Freely
+  Not In The Mood To Interact With Ppl, Please Ask Before Interact!! (unless close friend)
 
   🌙 Outside | ⛔ Online | 💬 More Chatty
 </small>
@@ -24,7 +24,7 @@
 
 
   
-  Please Interact W Me I Swear I'm a Cool Guy
+  Please Sign My Ata I Swear I'm a Cool Guy
   </small>
 
 
