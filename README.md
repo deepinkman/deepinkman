@@ -10,7 +10,7 @@
 
 
 <small>
-  Not In The Mood To Interact With Ppl, Please Ask Before Interact!! (unless close friend)
+  Always Cuddle - Boop - Kiss etc. Freely
 
   🌙 Outside | ⛔ Online | 💬 More Chatty
 </small>
@@ -20,7 +20,7 @@
 <a href="https://deepinkman.straw.page" target="_blank">**​STRAWPAGE​**</a>　　<a href="https://deepinkman.atabook.org" target="_blank">**ATABOOK**</a>　　<a href="https://pronouns.cc/@deepinkman" target="_blank">**PRONOUNS**</a>　　<a href="https://guns.lol/deepinkman" target="_blank">**GUNSLOL**</a>　　<a href="https://rentry.co/deepinkman" target="_blank">**RENTRY**</a>
 
 <small>
-  Please Ask 4 Permission B4 Taking Inspo Freaks
+  Ask 4 Permission B4 Taking Inspo Freaks
 
 
   
