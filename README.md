@@ -20,11 +20,11 @@
 <a href="https://deepinkman.straw.page" target="_blank">**​STRAWPAGE​**</a>　　<a href="https://deepinkman.atabook.org" target="_blank">**ATABOOK**</a>　　<a href="https://pronouns.cc/@deepinkman" target="_blank">**PRONOUNS**</a>　　<a href="https://guns.lol/deepinkman" target="_blank">**GUNSLOL**</a>　　<a href="https://rentry.co/deepinkman" target="_blank">**RENTRY**</a>
 
 <small>
-  Ask 4 Permission B4 Taking Inspo Freaks
+  Ask Permission 4 Inspo
 
 
-  
-  Please Sign My Ata I Swear I'm a Cool Guy
+
+  Basic DNI
   </small>
 
 
