@@ -17,7 +17,7 @@
 
 ### LINKS ଘ(´｡•  •｡`)ଓ ![](https://files.catbox.moe/wd6waf.gif)
 
-<a href="https://shatteredwings.straw.page" target="_blank">**​STRAWPAGE​**</a>　ʚ　<a href="https://deepinkman.atabook.org" target="_blank">**ATABOOK**</a>　𖤝　<a href="https://pronouns.cc/@deepinkman" target="_blank">**PRONOUNS**</a>　ɞ　<a href="https://rentry.co/deepinkman" target="_blank">**RENTRY**</a>
+**​STRAWPAGE​ [WIP]**　ʚ　<a href="https://deepinkman.atabook.org" target="_blank">**ATABOOK**</a>　𖤝　<a href="https://pronouns.cc/@deepinkman" target="_blank">**PRONOUNS**</a>　ɞ　<a href="https://rentry.co/deepinkman" target="_blank">**RENTRY**</a>
 
 <small>
   Ask Permission 4 Inspo
