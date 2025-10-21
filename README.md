@@ -17,7 +17,7 @@
 
 ### LINKS ଘ(´｡•  •｡`)ଓ ![](https://files.catbox.moe/wd6waf.gif)
 
-<a href="https://deepinkman.atabook.org" target="_blank">**ATABOOK**</a>
+<a href="https://ikeaboy.straw.page" target="_blank">**STRAWPAGE**</a>　𖤝　<a href="https://deepinkman.atabook.org" target="_blank">**ATABOOK**</a>
 
 **Other Links Are WIP**
 
