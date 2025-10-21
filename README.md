@@ -17,7 +17,10 @@
 
 ### LINKS ଘ(´｡•  •｡`)ଓ ![](https://files.catbox.moe/wd6waf.gif)
 
-<a href="https://deepinkman.atabook.org" target="_blank">**ATABOOK**</a> [Other Links Are WIP]
+<a href="https://deepinkman.atabook.org" target="_blank">**ATABOOK**</a>
+
+**Other Links Are WIP**
+
 
 <small>
   Ask Permission 4 Inspo
