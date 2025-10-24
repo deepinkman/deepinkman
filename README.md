@@ -27,6 +27,9 @@
 
 
 ˚₊‧ ꒰ა 𖤍 ໒꒱ ‧₊˚
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31exv563svc6lrelnypldxlrrewq&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=5f80b4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
   </small>
 
 
