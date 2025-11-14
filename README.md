@@ -21,6 +21,7 @@
 
 ˚₊‧ ꒰ა 𖤍 ໒꒱ ‧₊˚
 
+<img align="center" width="80%" src="https://files.catbox.moe/lk4i8o.gif">
 
 <small>
 
