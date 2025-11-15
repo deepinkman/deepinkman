@@ -2,7 +2,9 @@
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
-<img align="center" width="40%" src="https://files.catbox.moe/lk4i8o.gif" title=" ¹⁶ " >
+<img src="https://files.catbox.moe/lk4i8o.gif" title=" ¹⁶ " width="340" height="340" >
+
+
 
 
 
