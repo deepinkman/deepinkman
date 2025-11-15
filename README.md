@@ -1,11 +1,10 @@
 <div align="center">
 
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
-
 <img src="https://files.catbox.moe/lk4i8o.gif" title=" ¹⁶ " width="340" height="340" >
 
 
 
+▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
 
 
