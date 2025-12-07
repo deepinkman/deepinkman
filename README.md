@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/8gp9ex.gif" title="　𓊆Gif From Tumblr 'WIP𓊇　" >
+<img src="https://files.catbox.moe/8gp9ex.gif" title="　𓊆Gif From Tumblr 'WIP𓊇　" width="320" height="320" >
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
