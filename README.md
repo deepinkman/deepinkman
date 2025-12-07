@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/lk4i8o.gif" title="　𓊆Gif Made By Me ' Don't Repost W/o Permission𓊇　" width="320" height="320" >
+<img src="https://files.catbox.moe/lk4i8o.gif" title="　𓊆Gif From Tumblr 'WIP𓊇　" width="320" height="320" >
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
