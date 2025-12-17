@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/zjho8q.gif" title="　𓊆Gif From Tumblr 'Graphic By Me𓊇　" width="340" height="340" >
+<img src="https://files.catbox.moe/vomfa8.gif" title="　𓊆Gif Made By Me ' As A Joke𓊇　" width="200" height="200" >
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
