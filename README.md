@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/7hw7mq.png" title="　𓊆Drawing Made By @deepinkman ' Do Not Repost W/O Permission𓊇　" width="320" height="400" >
+<img src="https://files.catbox.moe/7hw7mq.png" title="　𓊆Drawing Made By @deepinkman ' Do Not Repost W/O Permission𓊇　" width="380" height="490" >
 
 ・・・・・
 
