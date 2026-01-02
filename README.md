@@ -1,8 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/7hw7mq.png" title="　𓊆Drawing Made By @deepinkman ' Do Not Repost W/O Permission𓊇　" width="380" height="490" >
-
-<sub> __layout is wip bc i acc h8 my art im gon change it soon__
+<img src="https://files.catbox.moe/xktcfq.gif" title="　𓊆Gif Made By @deepinkman ' Do Not Repost W/O Permission𓊇　" width="400" height="400" >
 
 <sub>__🌙outside__　⋮　__⛔online__　⋮　__💬chatty__
 
