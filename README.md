@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/xktcfq.gif" title="　𓊆Gif Made By @deepinkman ' Do Not Repost W/O Permission𓊇　" width="400" height="400" >
+<img src="https://files.catbox.moe/188xqj.gif" title="　𓊆Gif Made By @deepinkman ' Do Not Repost W/O Permission𓊇　" width="370" height="370" >
 
 <sub>__🌙outside__　⋮　__⛔online__　⋮　__💬chatty__
 
