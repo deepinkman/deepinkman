@@ -1,7 +1,6 @@
  <div align="center">
 
-
-<img src="https://i.postimg.cc/RCnwtWsM/samcest.gif" title=" Gif Made By @deepinkman " width="300" height="200" >
+<img src="https://i.postimg.cc/RCnwtWsM/samcest.gif" title=" gif made by @deepinkman -  can use w/o creds " width="300" height="200" >
  
    
  <sub>[pronouns.cc](https://pronouns.cc/@deepinkman)<br/> 
