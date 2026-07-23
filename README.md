@@ -15,6 +15,5 @@
 # WIP!!
 
 <details>
-  <summary> <p align="center"></summary>
 
 ### test,,
