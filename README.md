@@ -8,10 +8,7 @@ theres a 𝘥𝘰𝘨 in your 𝗵𝗲𝗮𝗿𝘁 &
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤit 𝙩𝙚𝙡𝙡𝙨 you to 𝘵𝘦𝘢𝘳 everything a͟p͟a͟r͟t͟
 
    ㅤ
-   
- <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=555555&style=for-the-badge&label=samcest+lovers&abreviated=true">
-
-ㅤ
+   ㅤ
 
 <details align="CENTER">
 <summary>ㅤ𝗜𝗡𝗙𝗢ㅤ</summary>
@@ -23,3 +20,6 @@ theres a 𝘥𝘰𝘨 in your 𝗵𝗲𝗮𝗿𝘁 &
  
 </details>
 
+ㅤ
+
+ <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=555555&style=for-the-badge&label=samcest+lovers&abreviated=true">
