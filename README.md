@@ -14,9 +14,9 @@ theres a 𝘥𝘰𝘨 in your 𝗵𝗲𝗮𝗿𝘁 &
 ㅤ
 
 <details align="CENTER">
-<summary>ㅤWIPㅤ</summary>
+<summary>ㅤ𝗜𝗡𝗙𝗢ㅤ</summary>
  
-##### test
+##### WIP
 
 </details>
 
