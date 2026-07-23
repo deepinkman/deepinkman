@@ -12,8 +12,11 @@
 
 
 
-# WIP!!
 
-<details>
+<details align="left">
 
 ##### test
+
+</details>
+
+# WIP!!
