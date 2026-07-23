@@ -16,7 +16,10 @@ theres a 𝘥𝘰𝘨 in your 𝗵𝗲𝗮𝗿𝘁 &
 <details align="CENTER">
 <summary>ㅤ𝗜𝗡𝗙𝗢ㅤ</summary>
  
-##### WIP
-
+ #### 🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty
+ <sub>[__strawpage__](https://soulessam.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronounscc__](https://pronouns.cc/@deepinkman)
+ 
+ -- work in progress --
+ 
 </details>
 
