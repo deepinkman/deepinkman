@@ -5,7 +5,7 @@
  <sub>
 theres a 𝘥𝘰𝘨 in your 𝗵𝗲𝗮𝗿𝘁 &
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤit 𝙩𝙚𝙡𝙡𝙨 you to 𝘵𝘦𝘢𝘳 everything a͟p͟a͟r͟t͟ <br/> 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤit 𝙩𝙚𝙡𝙡𝙨 you to 𝘵𝘦𝘢𝘳 everything a͟p͟a͟r͟t͟ <br/> 
 
    ㅤ
    
