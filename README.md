@@ -3,7 +3,7 @@
 <img src="https://i.postimg.cc/RCnwtWsM/samcest.gif" title=" gif made by @deepinkman -  can use w/o creds " width="320" align=left >
 ㅤ
  <sub>
-   ㅤㅤㅤㅤtheres a dog in our heart &
+   ㅤㅤㅤㅤtheres a dog in your heart &
   
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤit tells you to tear everything apart <br/> 
 
