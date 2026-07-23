@@ -5,15 +5,16 @@
  <sub>
    ㅤㅤㅤㅤtheres a dog in our heart &
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤit tells you to tear everything apart
-
-ㅤㅤㅤ
-
-[pronouns.cc](https://pronouns.cc/@deepinkman)<br/> 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤit tells you to tear everything apart <br/> 
 
    
  <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=505050&style=plastic&label=👁&abreviated=true">
 
 
 
-### WIP!!
+# WIP!!
+
+<details>
+  <summary> <p align="center"></summary>
+
+### test,,
