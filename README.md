@@ -8,7 +8,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤit tells you to tear everything apart <br/> 
 
    
- <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=505050&style=plastic&label=👁&abreviated=true">
+ <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=555555&style=for-the-badge&label=👁&abreviated=true">
 
 
 
@@ -16,4 +16,4 @@
 
 <details>
 
-### test,,
+##### test
