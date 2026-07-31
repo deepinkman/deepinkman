@@ -29,5 +29,5 @@ theres a 𝘥𝘰𝘨 in your 𝗵𝗲𝗮𝗿𝘁 &
  
 ㅤ
 
-» [__@pt-walk-of-fame__](https://github.com/pt-walk-of-fame)　[__@pt-hall-of-media__](https://github.com/pt-hall-of-media) 𝘁𝗵𝗮𝗻𝗸𝘀!!
+[__@pt-walk-of-fame__](https://github.com/pt-walk-of-fame)⠀[__@pt-hall-of-media__](https://github.com/pt-hall-of-media)⠀:⠀𝘁𝗵𝗮𝗻𝗸𝘀!!
 
