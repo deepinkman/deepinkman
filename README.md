@@ -17,7 +17,7 @@ theres a 𝘥𝘰𝘨 in your 𝗵𝗲𝗮𝗿𝘁 &
 <summary>ㅤ𝗖𝗟𝗜𝗖𝗞 𝗙𝗢𝗥 𝗜𝗡𝗙𝗢</summary>
  
  #### 🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty
- [__wip__]()　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)
+ [__straw__](https://samcest.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)
  
 </details>
 
