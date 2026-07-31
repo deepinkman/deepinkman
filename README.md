@@ -29,4 +29,5 @@ theres a 𝘥𝘰𝘨 in your 𝗵𝗲𝗮𝗿𝘁 &
  
 ㅤ
 
- <img src="https://files.catbox.moe/ho26mp.png" title=" 👁️‍🗨️⠀» 𝗚𝗔𝗛𝗛!! 𝗧𝗛𝗔𝗡𝗞𝗦 @𝗽𝘁-𝘄𝗮𝗹𝗸-𝗼𝗳-𝗳𝗮𝗺𝗲 𝗦𝗢 𝗠𝗨𝗕𝗖𝗛𝗛!! " width="280">  <img src="https://file.garden/aiXHFC35GAfAeMwj/YAY.png" title=" 👁️‍🗨️⠀»  𝗧𝗛𝗔𝗡𝗞𝗦 @𝗽𝘁-𝗵𝗮𝗹𝗹-𝗼𝗳-𝗺𝗲𝗱𝗶𝗮!! " width="280">
+» [__pt-walk-of-fame__](https://github.com/pt-walk-of-fame)　[__pt-hall-of-media__](https://github.com/pt-hall-of-media) 𝘁𝗵𝗮𝗻𝗸𝘀!!
+
