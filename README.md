@@ -31,5 +31,5 @@ theres a 𝘥𝘰𝘨 in your 𝗵𝗲𝗮𝗿𝘁 &
 
 [__@pt-walk-of-fame__](https://github.com/pt-walk-of-fame)⠀[__@pt-hall-of-media__](https://github.com/pt-hall-of-media)⠀[__@pt-of-awesomeness__](https://github.com/pt-of-awesomeness)⠀:⠀𝘁𝗵𝗮𝗻𝗸𝘀!!
 
-[![My scrobbles](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=deepinkman&count=1)](https://www.last.fm/user/deepinkman)
+[![My scrobbles](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=deepinkman&theme=transparent&count=1)](https://www.last.fm/user/deepinkman)
 
