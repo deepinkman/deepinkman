@@ -1,3 +1,16 @@
  <div align="center">
 
-wip
+<img src="https://64.media.tumblr.com/7407aa6de4f491f2624a5f10c157e83d/6a1921cc1a4fc9f7-98/s1280x1920/e7edc9e186f75234e3212124a4dc6e349c5a62a8.pnj" title="👁️‍🗨️⠀» 𝗮𝗿𝘁 𝗯𝘆 @𝙙𝙚𝙚𝙥𝙞𝙣𝙠𝙢𝙖𝙣 𝗻𝗳𝟮𝘂 " width="350" align=left >
+
+
+<img src="https://file.garden/aiXHFC35GAfAeMwj/divider2.png" title=" 👁️‍🗨️⠀» 𝗱𝗶𝘃𝗶𝗱𝗲𝗿 𝙘𝙧𝙚𝙙𝙨 𝘁𝗼 @𝙗𝙤𝙣𝙣𝙞𝙚𝙠𝙣𝙤𝙬𝙨𝙗𝙚𝙨𝙩 𝗼𝗻 𝙩𝙪𝙢𝙗𝙡𝙧 " width="500">
+
+ 
+  
+🌙 - 𝗢𝘂𝘁𝘀𝗶𝗱𝗲ㅤ⛔ - 𝗢𝗻𝗹𝗶𝗻𝗲ㅤ💬 - 𝗖𝗵𝗮𝘁𝘁𝘆
+
+
+<sub>[__straw__](https://samcest.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)</sub>
+
+
+__wip ok__
