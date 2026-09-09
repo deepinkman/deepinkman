@@ -5,12 +5,17 @@
 
 <img src="https://file.garden/aiXHFC35GAfAeMwj/divider2.png" title=" 👁️‍🗨️⠀» 𝗱𝗶𝘃𝗶𝗱𝗲𝗿 𝙘𝙧𝙚𝙙𝙨 𝘁𝗼 @𝙗𝙤𝙣𝙣𝙞𝙚𝙠𝙣𝙤𝙬𝙨𝙗𝙚𝙨𝙩 𝗼𝗻 𝙩𝙪𝙢𝙗𝙡𝙧 " width="300">
 
- 
   
-🌙 - 𝗢𝘂𝘁𝘀𝗶𝗱𝗲ㅤ⛔ - 𝗢𝗻𝗹𝗶𝗻𝗲ㅤ💬 - 𝗖𝗵𝗮𝘁𝘁𝘆
+ <sub>🌙 - 𝗢𝘂𝘁𝘀𝗶𝗱𝗲ㅤ⛔ - 𝗢𝗻𝗹𝗶𝗻𝗲ㅤ💬 - 𝗖𝗵𝗮𝘁𝘁𝘆</sub>
 
 
 <sub>[__straw__](https://samcest.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)</sub>
 
+<details align="CENTER">
+<summary>ㅤ𝗧𝗜𝗧𝗟𝗘𝗦</summary>
+ 
+ <sub>[__@pt-walk-of-fame__](https://github.com/pt-walk-of-fame)⠀[__@pt-hall-of-media__](https://github.com/pt-hall-of-media)⠀[__@pt-of-awesomeness__](https://github.com/pt-of-awesomeness)⠀:⠀𝘁𝗵𝗮𝗻𝗸𝘀!!</sub>
+
+</details>
 
 __wip ok__
