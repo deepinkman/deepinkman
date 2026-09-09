@@ -7,7 +7,8 @@
 
 <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=ECA3C0&style=flat-square&label=Eyes+on+my+page&abreviated=true">
 
-layout yapmaya cok useniyom arkdslar ozur dilerim
+layout yapmaya cok useniyom arkdslar ozur dilerim ☹️
+
 .
 
 .
