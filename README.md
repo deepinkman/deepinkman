@@ -9,7 +9,7 @@
 
 
  
-<sub>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhold me, 𝘬𝘪𝘴𝘴 me. whisper 𝘀𝘄𝗲𝗲𝘁𝗹𝘆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthat 𝒚𝒐𝒖 love me 𝘧͟𝘰͟𝘳͟𝘦͟𝘷͟𝘦͟𝘳͟</sub>
+<sub>hold me, 𝘬𝘪𝘴𝘴 me. whisper 𝘀𝘄𝗲𝗲𝘁𝗹𝘆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthat 𝒚𝒐𝒖 love me f͟o͟r͟e͟v͟e͟r͟</sub>
 
 layout yapmaya cok useniyom arkdssklar ozur dilerim i lied☹️
 
