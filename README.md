@@ -3,7 +3,7 @@
 <img src="https://file.garden/aiXHFC35GAfAeMwj/L2.png" title="👁️‍🗨️⠀» 𝗮𝗿𝘁 𝗯𝘆 @𝙙𝙚𝙚𝙥𝙞𝙣𝙠𝙢𝙖𝙣 𝗻𝗳𝟮𝘂 " width="350" align=left>
 
 
-<img src="https://file.garden/aiXHFC35GAfAeMwj/1.png" title="👁️‍🗨️⠀» 𝙙𝙞𝙫𝙞𝙙𝙚𝙧 " width="400" align=left>
+<img src="https://file.garden/aiXHFC35GAfAeMwj/1.png" title="👁️‍🗨️⠀» 𝙙𝙞𝙫𝙞𝙙𝙚𝙧 " width="470" align=left>
 
   
  <sub>🌙 - 𝗢𝘂𝘁𝘀𝗶𝗱𝗲ㅤ⛔ - 𝗢𝗻𝗹𝗶𝗻𝗲ㅤ💬 - 𝗖𝗵𝗮𝘁𝘁𝘆</sub>
