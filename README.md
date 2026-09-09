@@ -21,4 +21,4 @@
 .
 
 
-<img src="https://file.garden/aiXHFC35GAfAeMwj/dividerr2.png" title="👁️‍🗨️⠀» 𝗱𝗶𝘃𝗶𝗱𝗲𝗿 𝗰𝗿𝗲𝗱𝘀 𝘁𝗼 @𝙗𝙤𝙪𝙣𝙙𝙗𝙪𝙣𝙣𝙞𝙚 𝗼𝗻 𝘁𝘂𝗺𝗯𝗹𝗿 " width="450" align=left>
+<img src="https://file.garden/aiXHFC35GAfAeMwj/dividerr2.png" title="👁️‍🗨️⠀» 𝗱𝗶𝘃𝗶𝗱𝗲𝗿 𝗰𝗿𝗲𝗱𝘀 𝘁𝗼 @𝙗𝙤𝙪𝙣𝙙𝙗𝙪𝙣𝙣𝙞𝙚 𝗼𝗻 𝘁𝘂𝗺𝗯𝗹𝗿 " width="455" align=left>
