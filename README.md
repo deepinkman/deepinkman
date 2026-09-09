@@ -6,11 +6,12 @@
 <img src="https://file.garden/aiXHFC35GAfAeMwj/b.png" title="👁️‍🗨️⠀» 𝗱𝗶𝘃𝗶𝗱𝗲𝗿 𝗰𝗿𝗲𝗱𝘀 𝘁𝗼 @𝙗𝙤𝙪𝙣𝙙𝙗𝙪𝙣𝙣𝙞𝙚 𝗼𝗻 𝘁𝘂𝗺𝗯𝗹𝗿 " width="455" align=left>
 
 <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=ECA3C0&style=flat-square&label=+++++++++𝑬𝒚𝒆𝒔+𝗼𝗻+𝗺𝘆+𝗽𝗮𝗴𝗲&abreviated=true">
+
+
  
- <sub>
-hold me 𝘬𝘪𝘴𝘴 me whisper 𝘀𝘄𝗲𝗲𝘁𝗹𝘆
+<sub>hold me 𝘬𝘪𝘴𝘴 me whisper 𝘀𝘄𝗲𝗲𝘁𝗹𝘆</sub>
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthat 𝒚𝒐𝒖 love me 𝘧͟𝘰͟𝘳͟𝘦͟𝘷͟𝘦͟𝘳͟
+<sub>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthat 𝒚𝒐𝒖 love me 𝘧͟𝘰͟𝘳͟𝘦͟𝘷͟𝘦͟𝘳͟</sub>
 
 layout yapmaya cok useniyom arkdssklar ozur dilerim i lied☹️
 
