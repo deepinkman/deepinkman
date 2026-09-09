@@ -15,9 +15,6 @@
 
 layout yapmaya cok useniyom arkdssklar ozur dilerim i lied☹️
 
-.
-
-.
 
 .
 
