@@ -9,7 +9,7 @@
 
 
  
-$\small{\text\it\color{#ECA3C0}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤㅤyou⠀can⠀call⠀me⠀mine!}}$
+$\{\text\it\color{#ECA3C0}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤㅤyou⠀can⠀call⠀me⠀mine!}}$
 
 $\{\text\it\color{#ECA3C0}{ㅤtestㅤ}}$
 ${\textsf{\color{#ECA3C0} test }}$
