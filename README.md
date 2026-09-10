@@ -10,6 +10,8 @@
  
 $\{\text\it\color{#ECA3C0}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤㅤyou⠀can⠀call⠀me⠀mine⠀!}}$
 
+${\textsf{\color{#ECA3C0}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
+
 .
 
 .
