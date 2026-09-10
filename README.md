@@ -7,14 +7,10 @@
 
 <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=ECA3C0&style=flat-square&label=+++++++++𝑬𝒚𝒆𝒔+𝗼𝗻+𝗺𝘆+𝗽𝗮𝗴𝗲&abreviated=true">
 
-
  
 $\{\text\it\color{#ECA3C0}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤㅤyou⠀can⠀call⠀me⠀mine!}}$
 
-$\{\text\it\color{#ECA3C0}{ㅤtestㅤ}}$
-${\textsf{\color{#ECA3C0} test }}$
-
-layout yapmaya cok useniyom arkdssklar ozur dilerim i lied☹️
+.
 
 .
 
