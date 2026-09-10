@@ -11,7 +11,7 @@
  
 $\small{\text\it\color{#ECA3C0}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤㅤyou⠀can⠀call⠀me⠀mine!}}$
 
-$\small{\text\it\color{#ECA3C0}{ㅤtestㅤ}}$
+$\{\text\it\color{#ECA3C0}{ㅤtestㅤ}}$
 ${\textsf{\color{#ECA3C0} test }}$
 
 layout yapmaya cok useniyom arkdssklar ozur dilerim i lied☹️
