@@ -16,7 +16,8 @@ ${\textsf{\color{#ECA3C0}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
  
 <sub>[__straw__](https://effort.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)</sub>
 </details>
-.
+
+[![My scrobbles](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=deepinkman&theme=transparent&count=1)](https://www.last.fm/user/deepinkman)
 
 .
 
