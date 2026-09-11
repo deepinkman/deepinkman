@@ -6,9 +6,15 @@
 <img src="https://file.garden/aiXHFC35GAfAeMwj/b.png" title="👁️‍🗨️⠀» 𝗱𝗶𝘃𝗶𝗱𝗲𝗿 𝗰𝗿𝗲𝗱𝘀 𝘁𝗼 @𝙗𝙤𝙪𝙣𝙙𝙗𝙪𝙣𝙣𝙞𝙚 𝗼𝗻 𝘁𝘂𝗺𝗯𝗹𝗿 " width="455" align=left>
 
 <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=ECA3C0&style=flat-square&label=+++++++++𝑬𝒚𝒆𝒔+𝗼𝗻+𝗺𝘆+𝗽𝗮𝗴𝗲&abreviated=true">
-
  
 $\{\text\it\color{#ECA3C0}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤㅤyou⠀can⠀call⠀me⠀mine⠀!}}$
+
+<details align="CENTER">
+<summary>${\textsf{\color{#ECA3C0}ㅤLINKS}}$</summary>
+ 
+ <sub>[__straw__](https://samcest.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)</sub>
+ 
+</details>
 
 ${\textsf{\color{#ECA3C0}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
 
