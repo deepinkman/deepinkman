@@ -19,8 +19,4 @@ ${\textsf{\color{#ECA3C0}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
 
 [![My scrobbles](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=deepinkman&theme=transparent&count=1)](https://www.last.fm/user/deepinkman)
 
-.
-
-.
-
 <img src="https://file.garden/aiXHFC35GAfAeMwj/h.png" title="👁️‍🗨️⠀» 𝗱𝗶𝘃𝗶𝗱𝗲𝗿 𝗰𝗿𝗲𝗱𝘀 𝘁𝗼 @𝙗𝙤𝙪𝙣𝙙𝙗𝙪𝙣𝙣𝙞𝙚 𝗼𝗻 𝘁𝘂𝗺𝗯𝗹𝗿 " width="455" align=left>
