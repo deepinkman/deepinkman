@@ -12,7 +12,7 @@ $\{\text\it\color{#ECA3C0}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤ
 <details align="CENTER">
 <summary>${\textsf{\color{#ECA3C0}ㅤLINKS}}$</summary>
  
- <sub>[__straw__](https://samcest.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)</sub>
+ <sub>[__straw__](https://effort.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)</sub>
  
 </details>
 
