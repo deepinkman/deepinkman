@@ -9,14 +9,13 @@
 
 $\{\text\it\color{#ECA3C0}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤㅤyou⠀can⠀call⠀me⠀mine⠀!}}$
 
+${\textsf{\color{#ECA3C0}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
+
 <details align="CENTER">
 <summary>${\textsf{\color{#ECA3C0}ㅤLINKS}}$</summary>
  
- <sub>[__straw__](https://effort.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)</sub>
- </details>
-
-${\textsf{\color{#ECA3C0}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
-
+<sub>[__straw__](https://effort.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)</sub>
+</details>
 .
 
 .
