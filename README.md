@@ -14,7 +14,7 @@ ${\textsf{\color{#ECA3C0}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
 <details align="CENTER">
 <summary>${\textsf{\color{#ECA3C0}ㅤLINKS}}$</summary>
  
-<sub>[__straw__](https://effort.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__pronouns__](https://pronouns.cc/@deepinkman)</sub>
+<sub>[__𝓢𝒕𝒓𝒂𝒘__](https://effort.straw.page)　⋮　[__𝓐𝒕𝒂𝒃𝒐𝒐𝒌__](https://deepinkman.atabook.org)　⋮　[__𝓟𝒓𝒐𝒏𝒐𝒖𝒏𝒔__](https://pronouns.cc/@deepinkman)</sub>
 </details>
 
 [![My scrobbles](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=deepinkman&theme=transparent&text_color=eca3c0&accent_color=ed6c9e&logo_color=da5083&avatar=0&loved_color=da5083&count=1)](https://www.last.fm/user/deepinkman)
