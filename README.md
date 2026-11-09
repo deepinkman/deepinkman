@@ -5,7 +5,7 @@
 
 <img src="https://file.garden/aiXHFC35GAfAeMwj/b.png" title="👁️‍🗨️⠀» 𝐝𝗶𝘃𝗶𝗱𝗲𝗿 𝗰𝗿𝗲𝗱𝘀 𝘁𝗼 @𝗯𝗼𝘂𝗻𝗱𝗯𝘂𝗻𝗻𝗶𝗲 𝗼𝗻 𝘁𝘂𝗺𝗯𝗹𝗿 " width="455" align=left>
 
-<img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=FFFFFF&style=flat-square&label=+++++++++𝐄𝘆𝗲𝘀+𝗼𝗻+𝗺𝘆+𝗽𝗮𝗴𝗲&abreviated=true">
+<img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=000000&style=flat-square&label=+++++++++𝐄𝘆𝗲𝘀+𝗼𝗻+𝗺𝘆+𝗽𝗮𝗴𝗲&abreviated=true">
 
 $\{\text\it\color{}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤㅤyou⠀can⠀call⠀me⠀mine⠀!}}$
 
