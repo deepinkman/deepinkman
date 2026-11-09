@@ -12,7 +12,7 @@ $\{\text\it\color{#474747}{He⠀will⠀pull⠀the⠀trigger⠀on⠀you⠀and⠀t
 ${\textsf{\color{#636363}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
 
 <details align="CENTER">
-<summary>${\textsf{\color{#7f7f7f}ㅤLINKS}}$</summary>
+<summary>${\textsf{\color{#7f7f7f}ㅤCLICK FOR LINKS}}$</summary>
  
 <sub>[__𝐒𝘁𝗿𝗮𝘄__](https://samcest.straw.page)　⋮　[__𝐀𝘁𝗮𝗯𝗼𝗼𝗸__](https://deepinkman.atabook.org)　⋮　[__𝐏𝗿𝗼𝗻𝗼𝘂𝗻𝘀__](https://pronouns.cc/@deepinkman)</sub>
 </details>
