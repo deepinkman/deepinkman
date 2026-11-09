@@ -7,12 +7,12 @@
 
 <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=FFFFFF&style=flat-square&label=+++++++++𝐄𝘆𝗲𝘀+𝗼𝗻+𝗺𝘆+𝗽𝗮𝗴𝗲&abreviated=true">
 
-$\{\text\it\color{#FFFFFF}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤㅤyou⠀can⠀call⠀me⠀mine⠀!}}$
+$\{\text\it\color{}{I⠀can⠀call⠀you⠀masterㅤㅤㅤㅤㅤㅤㅤㅤㅤyou⠀can⠀call⠀me⠀mine⠀!}}$
 
-${\textsf{\color{#FFFFFF}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
+${\textsf{\color{}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
 
 <details align="CENTER">
-<summary>${\textsf{\color{#000000}ㅤLINKS}}$</summary>
+<summary>${\textsf{\color{}ㅤLINKS}}$</summary>
  
 <sub>[__𝐒𝘁𝗿𝗮𝘄__](https://effort.straw.page)　⋮　[__𝐀𝘁𝗮𝗯𝗼𝗼𝗸__](https://deepinkman.atabook.org)　⋮　[__𝐏𝗿𝗼𝗻𝗼𝘂𝗻𝘀__](https://pronouns.cc/@deepinkman)</sub>
 </details>
