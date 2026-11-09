@@ -7,9 +7,9 @@
 
 <img src="https://komarev.com/ghpvc/?username=deepinkman-username&color=000000&style=flat-square&label=+++++++++𝐄𝘆𝗲𝘀+𝗼𝗻+𝗺𝘆+𝗽𝗮𝗴𝗲&abreviated=true">
 
-$\{\text\it\color{}{He⠀will⠀pull⠀the⠀trigger⠀on⠀you⠀and⠀the⠀trigger⠀is⠀of⠀love⠀!}}$
+$\{\text\it\color{#474747}{He⠀will⠀pull⠀the⠀trigger⠀on⠀you⠀and⠀the⠀trigger⠀is⠀of⠀love⠀!}}$
 
-${\textsf{\color{}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
+${\textsf{\color{#636363}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
 
 <details align="CENTER">
 <summary>${\textsf{\color{}ㅤLINKS}}$</summary>
