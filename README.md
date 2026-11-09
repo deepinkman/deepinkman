@@ -17,6 +17,6 @@ ${\textsf{\color{}🌙 - Outsideㅤ⛔ - Onlineㅤ💬 - Chatty}}$
 <sub>[__𝐒𝘁𝗿𝗮𝘄__](https://samcest.straw.page)　⋮　[__𝐀𝘁𝗮𝗯𝗼𝗼𝗸__](https://deepinkman.atabook.org)　⋮　[__𝐏𝗿𝗼𝗻𝗼𝘂𝗻𝘀__](https://pronouns.cc/@deepinkman)</sub>
 </details>
 
-[![My scrobbles](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=deepinkman&theme=transparent&text_color=eca3c0&accent_color=ed6c9e&logo_color=da5083&avatar=0&loved_color=da5083&count=1)](https://www.last.fm/user/deepinkman)
+[![My scrobbles](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=deepinkman&theme=transparent&text_color=FFFFFF&accent_color=FFFFFF&logo_color=FFFFFF&avatar=0&loved_color=FFFFFF&count=1)](https://www.last.fm/user/deepinkman)
 
 <img src="https://file.garden/aiXHFC35GAfAeMwj/downdivider.png" title="👁️‍🗨️⠀» 𝐝𝗶𝘃𝗶𝗱𝗲𝗿 𝗰𝗿𝗲𝗱𝘀 𝘁𝗼 @𝗯𝗼𝘂𝗻𝗱𝗯𝘂𝗻𝗻𝗶𝗲 𝗼𝗻 𝘁𝘂𝗺𝗯𝗹𝗿 " width="455" align=left>
